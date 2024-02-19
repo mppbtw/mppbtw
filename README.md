@@ -20,6 +20,6 @@ Paternal Scent: Elderberries
 
 # Contact Details
 
-> Note: carrier pigeon not accepted
+> Note: carrier pigeon not accepted, swallows are negotiable
 
 mppdevv@skiff.com
