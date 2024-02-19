@@ -16,6 +16,8 @@ Facial Structure: Mostly bones
 
 Opinion on the French: Negative
 
+Paternal Scent: Elderberries
+
 # Contact Details
 
 > Note: carrier pigeon not accepted
