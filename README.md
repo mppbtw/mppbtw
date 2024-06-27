@@ -4,7 +4,7 @@
 
 * Based in the United Kingdom, also just based in general.
 
-* Part time FOSS developer when not bound by the inescapable shackles of Rishi Sunak's education system.
+* I dont floss. I FOSS 😎.
 
 * Firing through your windsheild is always the last resort, glass blowback can get in your lungs and obstruct vision of the target so open the door/window first.
 
@@ -22,4 +22,4 @@ Paternal Scent: Elderberries
 
 > Note: carrier pigeon not accepted, swallows are negotiable
 
-mppdevv@skiff.com
+mppbtw@protonmail.com
